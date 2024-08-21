@@ -1,4 +1,4 @@
-91暗网最新大陆入口：[([https://ch9527.shop](https://9527hl.com/)
+91暗网最新大陆入口：[https://9527hl.com](https://9527hl.com)
 
 牢记91暗网永久地址： [https://awtb.cloud](https://awtb.cloud)
 
