@@ -1,4 +1,4 @@
-91暗网最新大陆入口：[https://aw9527.live](https://aw9527.live)
+91暗网最新大陆入口：[https://aw9527.org](https://aw9527.org)
 
 牢记91暗网永久地址： [https://awtb.cloud](https://awtb.cloud)
 
